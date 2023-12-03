@@ -1,1 +1,6 @@
-# Fortnite-Code_Genreator
+# Fortnite-Code_Genreator 🗃
+Its Programe That Make And Check fortnite redeem codes 
+ITS OLD ON THE OLD SITE FOR REDDEM CODE AND ITS DON'T WORK 
+THIS APP JUST TESTING , IF YOU USE IT ON SOMETHING ILLEGAL NOT MY FAULT!!!
+
+![Alt text](https://cdn.discordapp.com/attachments/1116893606393937950/1180811615948505149/image.png?ex=657ec783&is=656c5283&hm=5ad1017b73463b69243024c82e2b2b7f7f10f6c7b2f6717841111371c9225294&)
